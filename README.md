@@ -40,7 +40,7 @@ $${\color{lightgreen}the \space \color{white} awards\space \color{pink}{i}\space
 
 <img width="800" src="https://imgur.com/NRZhgpo.png"/>
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Spray+Paint+&duration=6000&pause=1000&color=B14766&width=435&lines=JUDGEMENT+KNIGHTS+OF+THUNDER!!!!)](https://git.io/typing-svg)
+
 
 <!--
 **kiwiconiccc/kiwiconiccc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
