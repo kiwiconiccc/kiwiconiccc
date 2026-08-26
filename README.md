@@ -8,8 +8,8 @@ src="https://imgur.com/0NJQMlI.png"/>
 
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=F7A2BF&width=435&lines=Listen+(do-da-do);Do+you+want+to+know+a+secret%3F+(do-da-do);Do+you+promise+not+to+tell%3F+(woah+oh);Closer+(do-da-do);Let+me+whisper+in+your+ear+(do-da-do);Say+the+words+you+long+to+hear..;I'm...+in+love+with+you!+%E2%99%A1)](https://git.io/typing-svg)
 
-## 💞,, ʚ【 𝐁𝐘𝐈 】ɞ
-𝘩𝘦𝘭𝘭𝘰! 𝘺𝘰𝘶 𝘤𝘢𝘯 𝘤𝘢𝘭𝘭 𝘮𝘦 𝘒𝘪𝘸𝘪/𝘔𝘢𝘳𝘪! 𝘪 𝘴𝘱𝘦𝘢𝘬 𝘦𝘯𝘨𝘭𝘪𝘴𝘩 𝘢𝘯𝘥 𝘱𝘰𝘳𝘵𝘶𝘨𝘶𝘦𝘴𝘦 ! 𝘤𝘶𝘥𝘥𝘭𝘪𝘯𝘨 𝘪𝘴 𝘩𝘦𝘢𝘷𝘪𝘭𝘺 𝘦𝘯𝘤𝘰𝘶𝘳𝘢𝘨𝘦𝘥 𝘶𝘯𝘭𝘦𝘴𝘴 𝘪𝘮 𝘸𝘪𝘵𝘩 𝘧𝘳𝘪𝘦𝘯𝘥𝘴 , 𝘪'𝘭𝘭 𝘰𝘯𝘭𝘺 𝘢𝘥𝘥 𝘺𝘰𝘶 𝘪𝘧 𝘪 𝘨𝘦𝘵 𝘤𝘰𝘮𝘧𝘰𝘳𝘵𝘢𝘣𝘭𝘦 𝘸𝘪𝘵𝘩 𝘺𝘰𝘶 ! , 𝘪 𝘦𝘯𝘫𝘰𝘺 𝘪𝘯𝘵𝘦𝘳𝘢𝘤𝘵𝘪𝘯𝘨 𝘣𝘶𝘵 𝘱𝘭𝘦𝘢𝘢𝘢𝘢𝘴𝘦 𝘥𝘰𝘯'𝘵 𝘵𝘳𝘺 𝘵𝘰 𝘫𝘰𝘪𝘯 𝘮𝘺 𝘤𝘰𝘯𝘷𝘦𝘳𝘴𝘢𝘵𝘪𝘰𝘯𝘴!! *✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ
+## 💞,, ʚ【 𝐁𝐘𝐈 】
+hello ! im kiwi / mari ,, im mostly always energetic and loud ,, almost EVERYTHING i say is not meant to taken seriously, unless i use /gen ,, cuddling is HEAVILY encouraged, unless im with friends ,, pls do not involve me in stuff i have no business in ,, you can always interact with me freely !! ɞ*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ:*✧･ﾟ: *✧･ﾟ
 
 
 <img width="400" src="https://imgur.com/P1M3tAV.png"/>
