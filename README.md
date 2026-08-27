@@ -20,8 +20,10 @@ src="https://imgur.com/LuEMUdn.gif"/>
 [StrawPage](https://kiwiconicccc.straw.page)
 <img width="20" 
 src="https://imgur.com/f15EtpO.gif"/>
-<img width="800" 
-src="https://imgur.com/450ta1k.png"/>
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&redirect=true)
+
 <img width="800" 
 src="https://imgur.com/EKmyhtd.png"/>
 
