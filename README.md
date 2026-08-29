@@ -27,5 +27,11 @@ src="https://imgur.com/f15EtpO.gif"/>
 <img width="800" 
 src="https://imgur.com/EKmyhtd.png"/>
 
+$${\color{red}the \space \color{white} awards\space \color{orange}{i}\space \{have!!}}{\color{red}}{TYSM!!!!<3 }\space\$$
 
+[@pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-fashion](https://github.com/pt-fashion)  [@fans-town](https://github.com/fans-town) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@title-town](https://github.com/title-town) [@ponychievements](https://github.com/ponychievements) [@ponytown-nominations](https://github.com/ponytown-nominations) 
+[@pt-nominations](https://github.com/pt-nominations)
+[@YUME-TOWN](https://github.com/ponytownyumeshippers)
+[@pt-stars](https://github.com/pt-stars)
+ [@pt-medals](https://github.com/pt-medals)  [@FOLK-TOWN](https://github.com/FOLKTOWN) [@SHIP-TOWN](https://github.com/SHIP-TOWN) [@pony-town-cosplayers](https://github.com/ponytowncosplayers)
 
