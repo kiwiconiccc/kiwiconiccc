@@ -5,6 +5,8 @@ src="https://imgur.com/um9TzqK.png"/>
 <img width="800" 
 src="https://imgur.com/450ta1k.png"/>
 
+
+
 $${\color{red}Kiwi \space \color{white}or \space \color{orange}Mari}$$
 $${\color{red}She \space \color{lightblue}\space \color{orange}They}$$$${\color{red}Minor
 \space \color{white} ,, \space \color{orange}ENFP}$$
