@@ -17,9 +17,9 @@ src="https://imgur.com/D3HRBXX.gif"/>
 src="https://imgur.com/AVYOuNk.gif"/>
 <img width="100" 
 src="https://imgur.com/NBEfi6C.gif"/>
-<img width="200" 
+<img width="150" 
 src="https://imgur.com/1rci58b.png"/>
-<img width="800" 
+<img width="500" 
 src="https://imgur.com/GRIf2gM.png"/>
 [AtaBook](https://kiwiconic.atabook.org)
 <img width="20" 
