@@ -33,7 +33,7 @@ src="https://imgur.com/vNEMUHS.gif"/>
   [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [@pt-hall-of-media](https://github.com/pt-hall-of-media) [@pt-fashion](https://github.com/pt-fashion)  [@fans-town](https://github.com/fans-town) [@pt-of-awesomeness](https://github.com/pt-of-awesomeness) [@title-town](https://github.com/title-town) [@ponychievements](https://github.com/ponychievements) [@ponytown-nominations](https://github.com/ponytown-nominations) 
 [@pt-nominations](https://github.com/pt-nominations)
 [@pt-stars](https://github.com/pt-stars)
- [@pt-medals](https://github.com/pt-medals)  [@FOLK-TOWN](https://github.com/FOLKTOWN) [@SHIP-TOWN](https://github.com/SHIP-TOWN) [@pony-town-cosplayers](https://github.com/ponytowncosplayers)</details>
+ [@pt-medals](https://github.com/pt-medals)  [@FOLK-TOWN](https://github.com/FOLKTOWN) [@SHIP-TOWN](https://github.com/SHIP-TOWN) [@pony-town-cosplayers](https://github.com/ponytowncosplayers) [@PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) [@Ponytowns-ships](https://github.com/Ponytowns-ships)</details>
 
 <img width="800" 
 src="https://imgur.com/H2aMZoy.png"/>
