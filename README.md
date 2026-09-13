@@ -35,5 +35,6 @@ src="https://imgur.com/vNEMUHS.gif"/>
 [@pt-stars](https://github.com/pt-stars)
  [@pt-medals](https://github.com/pt-medals)  [@FOLK-TOWN](https://github.com/FOLKTOWN) [@SHIP-TOWN](https://github.com/SHIP-TOWN) [@pony-town-cosplayers](https://github.com/ponytowncosplayers) [@PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) [@Ponytowns-ships](https://github.com/Ponytowns-ships)</details>
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&redirect=true)
 <img width="800" 
 src="https://imgur.com/H2aMZoy.png"/>
