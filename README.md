@@ -27,5 +27,8 @@ src="https://imgur.com/vNEMUHS.gif"/>
 [StrawPage](https://kiwiconicccc.straw.page)
 <img width="20" 
 src="https://imgur.com/vNEMUHS.gif"/>
+
+<details><summary> ᥲᥕᥲrძs ♡ </summary><br>ay</details>
+
 <img width="800" 
 src="https://imgur.com/H2aMZoy.png"/>
