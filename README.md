@@ -4,7 +4,7 @@ src="https://imgur.com/4YCRJvG.png"/>
 <img width="800" 
 src="https://imgur.com/D3HRBXX.gif"/>
 
-$${\color{pink}Kiwi \space \color{white} / \space \color{#A3D6FF}Mari!!}$$
+$${\color{pink}Kiwi \space \color{white} / \space \color{#A3D6FF}Val!!}$$
 
 <img width="800" 
 src="https://imgur.com/7tcS6dn.png"/>
