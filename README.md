@@ -34,7 +34,7 @@ src="https://imgur.com/vNEMUHS.gif"/>
 [@pt-nominations](https://github.com/pt-nominations)
 [@pt-stars](https://github.com/pt-stars)
  [@pt-medals](https://github.com/pt-medals)  [@FOLK-TOWN](https://github.com/FOLKTOWN) [@SHIP-TOWN](https://github.com/SHIP-TOWN) [@pony-town-cosplayers](https://github.com/ponytowncosplayers) [@PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall) [@Ponytowns-ships](https://github.com/Ponytowns-ships) [@pt-heavyfictkin](https://github.com/pt-heavyfictkin) [@pt-icons](https://github.com/pt-icon) [@kao-town](https://github.com/kaotown)
- [@paw-town](https://github.com/paw-town)</details>
+ [@paw-town](https://github.com/paw-town) [@ponyhonors](https://github.com/ponyhonors) [@ponytown-rewards](https://github.com/Ponytowns-rewards)</details>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&redirect=true)
 [![Hits](https://hits.sh/github.com/kiwiconiccc.svg?label=Coffee%20Jellies&color=ff76ce&labelColor=61aff8)](https://hits.sh/github.com/kiwiconiccc/)
