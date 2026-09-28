@@ -37,6 +37,7 @@ src="https://imgur.com/vNEMUHS.gif"/>
  [@paw-town](https://github.com/paw-town) [@ponyhonors](https://github.com/ponyhonors) [@ponytown-rewards](https://github.com/Ponytowns-rewards)</details>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&redirect=true)
+
 [![Hits](https://hits.sh/github.com/kiwiconiccc.svg?label=Coffee%20Jellies&color=ff76ce&labelColor=61aff8)](https://hits.sh/github.com/kiwiconiccc/)
 <img width="800" 
 src="https://imgur.com/H2aMZoy.png"/>
