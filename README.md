@@ -39,6 +39,19 @@ src="https://imgur.com/vNEMUHS.gif"/>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31bef7dzr5fh6iyhbpqolyxsx6mi&redirect=true)
 
+
+<details><summary> dni list ♡ </summary><br>
+ • darkshippers
+ • shotacons
+ • blackwashing believers
+ • T.R.A.S.H.
+ • old friends
+ • associated with "coal/domo"
+ • says slurs you don't reclaim
+ • microlabel haters 
+ • +19 -12 ( iwc )
+ • </details>
+  
 [![Hits](https://hits.sh/github.com/kiwiconiccc.svg?label=Coffee%20Jellies&color=ff76ce&labelColor=61aff8)](https://hits.sh/github.com/kiwiconiccc/)
 <img width="800" 
 src="https://imgur.com/H2aMZoy.png"/>
