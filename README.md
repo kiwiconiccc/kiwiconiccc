@@ -42,11 +42,10 @@ src="https://imgur.com/vNEMUHS.gif"/>
 
 <details><summary> dni list ♡ </summary><br>
  • darkshippers
- • shotacons
+ • kodacons
  • blackwashing believers
  • T.R.A.S.H.
  • old friends
- • associated with "coal/domo"
  • says slurs you don't reclaim
  • microlabel haters 
  • +19 -12 ( iwc )
