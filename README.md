@@ -46,9 +46,3 @@ src="https://imgur.com/vNEMUHS.gif"/>
 <img width="800" 
 src="https://imgur.com/H2aMZoy.png"/>
 
-<img width="100" 
-src="https://imgur.com/KPp4TMQ.gif"/>
-<img width="100" 
-src="https://imgur.com/KPp4TMQ.gif"/>
-<img width="100" 
-src="https://imgur.com/KPp4TMQ.gif"/>
