@@ -1,5 +1,5 @@
 
 wip
 
-<img width="800" 
-src="https://imgur.com/jBgftwZ.jpeg"/>
+<img width="600" 
+src="https://imgur.com/x0vbtyw.jpeg"/>
