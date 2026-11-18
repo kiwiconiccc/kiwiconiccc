@@ -11,3 +11,6 @@ wip 🥝
 
 
 11:24[BEST RAVER IN THE WORLD. ME💢] me, devan, kiwi and delilab going to find noe's hiding place but we go to the bartender aether and he says that if we will ask questions we gotta order 4 iced teas
+
+<img width="600" 
+src="https://imgur.com/v8s8V5Z.jpeg"/>
