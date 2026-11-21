@@ -19,6 +19,11 @@ src="https://imgur.com/ybFo5cW.png"/>](https://kiwibarrett.straw.page)
 src="https://imgur.com/36ovhxH.png"/>](https://en.pronouns.page/@kiwiconicc)
 <img width="1000" 
 src="https://imgur.com/e1yK4W3.png"/>
-
+## what should i do today?
+ - [ ] get a job
+ - [ ] shower for the first time ever
+ - [x] do yumeship art
+ - [ ] turn into a better human being
+ - [x] glaze avpol 
 
 
