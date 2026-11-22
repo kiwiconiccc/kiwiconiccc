@@ -16,7 +16,7 @@ src="https://imgur.com/jAsZcOL.png"/>](https://kiwibarrett.atabook.org/)
 [<img width="1000" 
 src="https://imgur.com/ybFo5cW.png"/>](https://kiwibarrett.straw.page)
 [<img width="1000" 
-src="https://imgur.com/36ovhxH.png"/>](https://en.pronouns.page/@kiwiconicc)
+src="https://imgur.com/36ovhxH.png"/>](https://pronouns.cc/@kiwiconiccc)
 <img width="1000" 
 src="https://imgur.com/e1yK4W3.png"/>
 ## what should i do today?
