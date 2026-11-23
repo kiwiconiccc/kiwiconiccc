@@ -28,3 +28,5 @@ src="https://imgur.com/e1yK4W3.png"/>
 
 11:27[NASTY MAJESTY . me 🎵] [Evil kiwi] ( Her mind : I told everyone call me saiki just don ' t getit why ! ! . )
 
+32[shrimpo 🍓🍣 int dnc mv] no..! *uses my saiki powers to make kiwi remember his old past memories of us and fictionkilled family together to prevent him from becoming evil as kiwi starts panicking and cries in fear as he remembers all the happy ans sad memories and then gurns bavk to normal*
+
