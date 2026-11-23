@@ -26,4 +26,5 @@ src="https://imgur.com/e1yK4W3.png"/>
  - [ ] turn into a better human being
  - [x] glaze avpol 
 
+11:27[NASTY MAJESTY . me 🎵] [Evil kiwi] ( Her mind : I told everyone call me saiki just don ' t getit why ! ! . )
 
